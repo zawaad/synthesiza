@@ -1,2 +1,2 @@
 # synthesiza
-this is going to be a shit 
+this is going to be a shitshow
